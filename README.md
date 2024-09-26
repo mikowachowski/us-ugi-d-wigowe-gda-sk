@@ -1,1 +1,1 @@
-# us-ugi-d-wigowe-gda-sk
+# usługi-dźwigowe-gdańsk
